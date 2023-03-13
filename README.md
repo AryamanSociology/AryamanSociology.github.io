@@ -1,1 +1,1 @@
-# AryamanSociology.github.io
+# Aryaman Sharma
